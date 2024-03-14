@@ -1,4 +1,4 @@
-#Manifest Nedir?
+# Manifest Nedir?
 Dua, zihinlerimizdeki derin bir bağlantıyı ifade eder. İnsanlar tarih boyunca dua etmek ve maneviyata ulaşmak için çeşitli yöntemler kullanmışlardır. Dua, bir kişinin içsel ihtiyaçlarını ifade etme ve bir üst güce yönelme eylemidir. Bu manevi pratik, insanların inançlarına, kültürel farklılıklarına ve bireysel deneyimlerine göre değişebilir.
 https://supersayfa.com/rituel
 
